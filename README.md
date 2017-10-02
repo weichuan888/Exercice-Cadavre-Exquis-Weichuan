@@ -14,5 +14,4 @@ Une fois n'est pas coutume... rien ne se déroule jamais bien dans la vrai vie! 
 
 _**ATTAQUE CHARGE !**_
 
-Le serpent ne se sentait pas bien, le Mimitos lançait ses attaques dans son ventre. Jessie rappela Anda le serpent dans sa Pokéball tandis que James emportait le panda dans un grand sac noir. 
-
+Le serpent ne se sentait pas bien, le Mimitos lançait ses attaques dans son ventre. Jessie rappela Anda le serpent dans sa Pokéball tandis que James emportait le panda dans un grand sac noir.
