@@ -13,3 +13,6 @@ Le petit panda, affamé, se rua dessus et l'avala tout rond! Malheureusement pou
 Une fois n'est pas coutume... rien ne se déroule jamais bien dans la vrai vie! Le vil serpent se senti mal. Le pauvre Mimitos qu'il avait mangé quelques heures auparavant pour en extraire de la poudre dodo n'avait pas dit son dernier mot!
 
 _**ATTAQUE CHARGE !**_
+
+Le serpent ne se sentait pas bien, le Mimitos lançait ses attaques dans son ventre. Jessie rappela Anda le serpent dans sa Pokéball tandis que James emportait le panda dans un grand sac noir. 
+
