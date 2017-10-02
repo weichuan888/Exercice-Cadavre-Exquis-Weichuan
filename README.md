@@ -22,5 +22,5 @@ __Pour l'échanger contre un fucking rondoudou !!! xD __
 #### C'est la chanson de rondoudou... 
 *Roooon, Doudou Doudou ! Rondoudou ! Rondoudouuuu !!*
 
-Malheureusement cela n'a aucun effet sur le Panda déjà endormi, par contre Jesse et James furent malencontreusement pris dans son attaque et tombent endormi sur place, ce qui fit tomber le sac noir à terre et laissa la possibilité au panda de fuir... mais bon il dort encore pendant 3 tours. 
+Malheureusement cela n'a aucun effet sur le Panda déjà endormi, par contre Jessie et James furent malencontreusement pris dans son attaque et tombent endormi sur place, ce qui fit tomber le sac noir à terre et laissa la possibilité au panda de fuir... mais bon il dort encore pendant 3 tours. 
 
